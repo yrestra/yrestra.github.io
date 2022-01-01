@@ -1,2 +1,0 @@
-# yrestra.github.io
-HAPPYNEWYEAR
